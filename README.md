@@ -1,0 +1,1 @@
+List này để tổng hợp domain quảng cáo trên các web xem anime, phim, v.v
